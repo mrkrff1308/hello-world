@@ -2,5 +2,5 @@
 Just trying out GitHub
 rjegfoifjgoerjgerjge
 
-
-This fule is differnet cause its in the copy main aight
+deleted the one bit
+and now creating some things new
